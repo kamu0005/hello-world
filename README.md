@@ -6,3 +6,8 @@ This repository is built step by step in the tutorial.
 
 there is nothing to see here just a waste of time.
 the most violted mesg in the world is idk.
+
+
+no one is my Enemy.
+	or
+i have no enemies.
