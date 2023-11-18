@@ -11,3 +11,4 @@ the most violted mesg in the world is idk.
 no one is my Enemy.
 	or
 i have no enemies.
+rather than dying try to live peacefully
