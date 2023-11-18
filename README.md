@@ -12,3 +12,9 @@ no one is my Enemy.
 	or
 i have no enemies.
 rather than dying try to live peacefully
+
+
+oh yor are lossing your mind that ther is something going on tehr why wont younjoin u
+
+
+webheadNWIQ DIQOJ WIJQ 		 iiqowd iqwoq 
